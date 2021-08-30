@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Nitish990
+- 👋 Hi, I’m Nitish
 - 👀 I’m interested in Music
 - 🌱 I’m currently learning Coding
 - 📫 How to reach me :-contact on 6239624990
