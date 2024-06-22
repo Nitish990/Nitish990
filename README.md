@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Nitish
 - 👀 I’m interested in Music
 - 🌱 I’m currently learning Coding
-- 📫 How to reach me :-contact on 6239624990
+- 📫 How to reach me :-contact on +91 6239624990
                        mail me :- nitishbansal220@gmail.com
 
 <!---
